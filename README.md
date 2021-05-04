@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Wizzaa417
-- 👀 I’m interested in the Human Body
+- 👀 I’m interested in the Human Body and God.
 - 🌱 I’m currently learning how the internal reationships we have with and within our own body affect the external world.
 - 💞️ I’m looking to collaborate on a way to share this idea to a broader audience with evidence from my own personal tranformation I have filmed.
 - 📫 How to reach me sgunn417@gmail.com
